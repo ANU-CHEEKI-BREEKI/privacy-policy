@@ -63,4 +63,4 @@ This policy is effective as of 2023-08-05
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at titan.x7@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at anu.v.damki@gmail.com.
